@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**Sheetal777/Sheetal777** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Let's Go!**✨
 
 Here are some ideas to get you started:
 
