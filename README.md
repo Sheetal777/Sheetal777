@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-### Let's Go!✨
+### I am a learner!✨
 
 Here are some ideas to get you started:
 
