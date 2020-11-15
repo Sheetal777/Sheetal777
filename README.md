@@ -3,8 +3,7 @@
 
 ### I am a learner!✨
 
-- I’m currently working on Myself.
-- I’m currently learning Data Structures & Algorithms.
+- I’m currently learning to manage few things together.
 - I’m looking to collaborate with Open source.
 - I’m looking for help with collecting new ways to learn and apply. 
 - Ask me about How to begin.
