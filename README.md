@@ -7,8 +7,6 @@
 - I’m looking to collaborate with Open source.
 - I’m looking for help with collecting new ways to learn and apply. 
 - Ask me about How to begin.
-- Pronouns: She/her
-
 - ⚡ Fun fact: I love scheduling.
 
 
